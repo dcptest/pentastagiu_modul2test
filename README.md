@@ -1,0 +1,1 @@
+# pentastagiu_modul2test
